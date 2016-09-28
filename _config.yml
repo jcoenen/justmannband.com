@@ -23,7 +23,7 @@ description:
 
 # List of links in the navigation bar
 navbar-links:
-  Home: "/"
+  Home: "http://justmannband.com"
   ShowTimes: "showtimes"
   Sound Samples: "samples"
   Albums: "albums"
