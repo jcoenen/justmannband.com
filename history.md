@@ -4,15 +4,34 @@ title: The History
 subtitle: 
 ---
 
-The Justmann Band, formerly the Andy Justmann Orchestra, started performing in 1947. The band evolved into a family band as the Justmann kids grew up and the band recorded several albums over the years. The early years of the band had them playing in Iowa, Nebraska, Colorado, Michigan, Illinois, Minnesota and Wisconsin. The band entertained on an International scale with tours throughout Austria, Germany, Italy, and Switzerland as well, and carried it’s way through the Caribbean entertaining the “Ballroom Gliders” on board ship.
+The Justmann Band, formerly the Andy Justmann Orchestra started in 1947 in the Mayville area.  Andy Justmann played his first job in 1947 and graduated from Mayville High School.  The Band evolved into a family Band. Over the years the children grew up and the Band recorded several albums. The early years the Band played throughout the Midwest. They also entertained on an International scale with tours throughout Europe and the Caribbean, where they entertained the Ballroom Gliders on board a cruise ship. Charlie, Andy's oldest  Son, took over the Band in 1997 and built on what his Father, Andy, had begun.
 
-Charlie Justmann, Andy’s oldest son, took over the band in 1997 and built on what his father had begun years earlier and today the band consists of members on Wisconsin’s music community including various educators and professional musicians fron Central and Southern Wisconsin. The band plays modern and big band selections along with polkas, waltzes, Latin, country, Dixie, contemporary and more. Also featured are ethnic selections with German vocals and yodeling.
+Today, the Band plays Modern, Rock, Country, Big  Band, Polkas, Waltzes, Latin, Dixie, Contemporary and more. Also, featured are ethnic selections with  German vocals and yodeling. In recent years the Band has been featured at the Lake of the Torches Casino, Central Wisconsin State Fair, LaCrosse Oktoberfest, Chippewa Falls Oktoberfest and among others, not to mention Festivals, Weddings and numerous other public & private events.
 
-In recent years the band has been featured at the Lake of the Torches Casino, Central Wisconsin State Fair, the largest county fair in the country at Spencer, Iowa, Milwaukee’s own Germanfest, Oktoberfests in La Crosse, Chippewa Falls, Rhinelander, and many other private, civic and community events.
+The members are Charlie Justmann, Bass guitar, bass horn  and vocals. Charlie performed professionally with many  bands over the years starting with his Father's Band when he  was age 15. He has been recorded on numerous CDs, cassettes and  LP recordings with various bands over the  years. Charlie does the bookings, library building and  behind the scenes work of the Band. 
 
-The band has numerous recordings out with the most recent being Christmas Up North, a full-length CD filled with Christmas favorites, was released in 2002. The track Christmas Satellite Dish is heard on radio stations throughout the Midwest during the holiday season. Prior to Christmas Up North, the band released Contrasts (2001) and Upping the Ante (1999). All three CDs and Cassettes are available.
+John Johnson performs on  Trumpet, Flugelhorn and Vocals. John is formerly of the UW  Madison Marching  Band. He is a professional in every way  and has played with numerous bands. John is one of the best.
 
-The band is available for weddings, festivals, civic events, company parties and all occasions. For bookings, CDs, cassettes, or to receive a schedule of where the band will be in the future, call, write or email
+Monica Barden performs on vocals. She understands music,  style and is one of the most versatile singers that will  grace the  stage. 
+
+Shawn Johnston, Saxaphone, Clarinet,  Keyboard  and vocals, another true professional. Though  still in his 20s, Shawn is already arranging music selections for the  band.
+
+Kyle Dewitt plays Sax, Clarinet, Flute, Guitar and vocals. Also still in his 20s, Kyle is an extremely talented entertainer.
+
+Lyle Miller, keyboard/piano and vocals, is the backbone of  any Band.
+
+Nathan Mallek, a recent graduate UW Stevens Point plays Saxaphone and Clarinet. Nathan is very talented and truly enjoys being part of the Justmann Band. 
+
+Eric Hendrickson, an  Attorney, played with many bands and has his own rock band,  plays drums, electric and bass Guitars, and vocals. 
+
+Jeff  Schram, Lead Trumpet. Jeff is Band Director at Merrill High  School. Jeff does it all! Mike Barden, Piano/keyboard is a virtuoso, one of the finest you'll find. No one does it better. 
+
+Tony Wagner is on drums and percussion. Tony has played professionally most of his life and has played with some of the finest throughout the Midwest.
+
+The Band has numerous recordings out with the most recent  being "My Way or the Highway". The "Christmas Satellite  Dish" song, recorded by the band, is heard on radio stations  throughout the Midwest during the holiday season and  actually enjoys radio Air-time year round. 
+The Band has 5  CDS and 3 Cassettes available.
+
+To make your event special please contact the CHARLIE  JUSTMANN BAND for Weddings, Festivals, Civic Events, Company  Parties, Anniversaries, Class Reunions, and any other  occasion. If you need great entertainment, this is the  band!!!! 
 
 Charlie Justmann Band  
 E1288 Frontage Rd.  
