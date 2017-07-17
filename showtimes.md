@@ -36,16 +36,12 @@ July 1st
 **Private Wedding**  
 Stevens Point, WI 
 
-July 29th 
-**Private Wedding**  
-Sheboygan Falls, WI 
-
 ## September 2017
 September 1st, 5-8:30
 **Rotary Oktoberfest**   
 16 different craft beers to sample, two great bands, party, party, tickets available in advance or at the door.
 
-September 15th
+September 14th
 **Oshkosh High School Alumni Class Reunion**   
 
 ## October 2017
