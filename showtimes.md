@@ -44,6 +44,10 @@ September 1st, 5-8:30
 September 14th
 **Oshkosh High School Alumni Class Reunion**   
 
+September 23rd, Saturday, 6:00-10:00 
+**St. Bernard’s Church Party** 
+Appleton,WI everyone is welcome.
+
 ## October 2017
 October 8th, 1-5
 **Stetsonville public dance**   
