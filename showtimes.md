@@ -62,6 +62,16 @@ November 7th
 King Veteran's Home
 
 ## December 2017
-December 2nd, 12-2:30  
+December 2nd ***Sorry, cancelled due to a lack of volunteers and workers for the event.***
 **Spencer Lake Taste of Christmas**  
+Waupaca, WI
+
+## January 2018
+January 14th, 1-5  
+**Stetsonville Community Center, public dance party**  
+Stetsonville, WI
+
+## February 2018
+February 16th, 7-11  
+**Rotary Valentine’s Dance and Casino night**  
 Waupaca, WI
