@@ -30,7 +30,7 @@ November 7th
 King Veteran's Home
 
 ## December 2017
-December 2nd 
+December 2nd
 **Spencer Lake Taste of Christmas**  
 **Sorry, cancelled due to a lack of volunteers and workers for the event.**
 
