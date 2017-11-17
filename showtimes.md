@@ -30,10 +30,9 @@ November 7th
 King Veteran's Home
 
 ## December 2017
-December 2nd **Sorry, cancelled due to a lack of volunteers and workers for the event.**
-
+December 2nd 
 **Spencer Lake Taste of Christmas**  
-Waupaca, WI
+**Sorry, cancelled due to a lack of volunteers and workers for the event.**
 
 ## January 2018
 January 14th, 1-5  
