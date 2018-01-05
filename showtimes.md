@@ -6,13 +6,13 @@ subtitle:
 
 ## January 2018
 January 14th, 1-5  
-**Stetsonville Community Center, public dance party**  
-Stetsonville, WI
+**Public dance party**  
+Stetsonville Community Center, Stetsonville, WI
 
 ## February 2018
 February 16th, 7-11  
 **Rotary Valentine’s Dance and Casino night**  
-Free-play Casino/Pizza Buffet/Dance….great party sponsored by Waupaca Rotary.  See me for tickets!
+Free-play Casino/Pizza Buffet/Dance.  Great party sponsored by Waupaca Rotary.  See me for tickets!
 Waupaca, WI
 
 ## May 2018
