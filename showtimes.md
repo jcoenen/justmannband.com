@@ -22,6 +22,11 @@ May 20th, Sunday 11-3
 Food/music/displays. Come meet our Veterans and give them your support! A family event. No admission.  
 Waupaca, WI
 
+## June 2018
+June 23rd, Sat.  
+**Private wedding**   
+Wisconsin
+
 ## August 2018
 August 31st, Friday 5:30-8:30  
 **Rotary Oktoberfestt**  
@@ -42,3 +47,7 @@ King Veteran’s Home
 Dec. 9th, Sunday 1-5 
 **Christmas party/dance**  
 Stetsonville Community Center , Stetsonville, WI
+
+Dec. 29th, Saturday  
+**Private Wedding**   
+Minneapolis, MN  
