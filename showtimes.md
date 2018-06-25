@@ -27,6 +27,11 @@ June 23rd, Sat.
 **Private wedding**   
 Wisconsin
 
+## July 2018
+June 28th, Sat.  
+**Private wedding anniversary**   
+Wisconsin
+
 ## August 2018
 August 31st, Friday 5:30-8:30  
 **Rotary Oktoberfestt**  
