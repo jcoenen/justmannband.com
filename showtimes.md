@@ -4,55 +4,42 @@ title: Showtimes
 subtitle: 
 ---
 
-## January 2018
-January 14th, 1-5  
-**Public dance party**  
-Stetsonville Community Center, Stetsonville, WI
-
-## February 2018
-February 16th, 7-11  
-**Rotary Valentine’s Dance and Casino night**  
-Free-play Casino/Pizza Buffet/Dance.  
-Great party sponsored by Waupaca Rotary.  See me for tickets!  
+## February 2019
+February 8th, 7-11  
+**PAR4 Waupaca (formerly Ale House)**  
 Waupaca, WI
 
-## May 2018
-May 20th, Sunday 11-3  
-**King Veteran’s Home Open House**  
-Food/music/displays. Come meet our Veterans and give them your support! A family event. No admission.  
-Waupaca, WI
+## April 2019
+April 13th, Sunday 1-5  
+**Mayville Park Pavilion**  
+Mayville, WI
 
-## June 2018
-June 23rd, Sat.  
+## May 2019
+May 19th, Sun 11-2:30
+**King Veteran's Home Open House**   
+King, Wisconsin
+
+May 31st1, Friday 7-11
+**private wedding**
+Racine, WI
+
+## June 2019
+June 22nd, Sat.  6-10
 **Private wedding**   
-Wisconsin
+Portage County Fairgrounds, Wisconsin
 
-## July 2018
-June 28th, Sat.  
-**Private wedding anniversary**   
-Wisconsin
-
-## August 2018
-August 31st, Friday 5:30-8:30  
-**Rotary Oktoberfestt**  
+## August 2019
+August 30th, Friday 5:30-8:30  
+**Rotary Oktoberfest**  
 20 different beers, numerous wines, ethnic foods, great music! A family event.  
 Waupaca, WI
 
-## September 2018
-Sept. 9th, Sunday 1-5  
+## October 2019
+Oct 13th, Sunday 1-5
 **Public Dance**  
 Stetsonville Community Center, Stetsonville, WI
 
 ## November 2018
-Nov. 13th, Tuesday 6-8  
+Nov. 12th, Tuesday 6-8  
 **private party but all Veteran’s & family members welcome!**  
 King Veteran’s Home
-
-## December 2018
-Dec. 9th, Sunday 1-5 
-**Christmas party/dance**  
-Stetsonville Community Center , Stetsonville, WI
-
-Dec. 29th, Saturday  
-**Private Wedding**   
-Minneapolis, MN  
