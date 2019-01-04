@@ -15,10 +15,9 @@ April 13th, Sunday 1-5
 Mayville, WI
 
 ## May 2019
-May 19th, Sun 11-2:30 
-
-**King Veteran's Home Open House**   
-King, Wisconsin
+May 19th, Sun 11-2:30   
+**King Veteran's Home Open House**     
+King, Wisconsin  
 
 May 31st1, Friday 7-11  
 **private wedding**  
