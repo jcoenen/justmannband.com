@@ -5,12 +5,12 @@ subtitle:
 ---
 
 ## February 2019
-February 8th, 7-11  
+February 8th, Friday 7-11  
 **PAR4 Waupaca (formerly Ale House)**  
 Waupaca, WI
 
 ## April 2019
-April 13th, Sunday 1-5  
+April 13th, Saturday 1-5  
 **Mayville Park Pavilion**  
 Mayville, WI
 
@@ -19,14 +19,20 @@ May 19th, Sun 11-2:30
 **King Veteran's Home Open House**     
 King, Wisconsin  
 
-May 31st1, Friday 7-11  
+May 31st, Friday
 **private wedding**  
 Racine, WI  
 
 ## June 2019
+June 2nd, Sunday  
+**Private wedding anniversary**    
+
 June 22nd, Sat.  6-10  
 **Private wedding**    
 Portage County Fairgrounds, Wisconsin 
+
+June 29th, Sat.  
+**Private wedding**    
 
 ## August 2019
 August 30th, Friday 5:30-8:30    
