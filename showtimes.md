@@ -53,4 +53,3 @@ Waupaca, WI
 Nov. 12th, Tuesday 6-8   
 **private party but all Veteran’s & family members welcome!**  
 King Veteran’s Home
-
