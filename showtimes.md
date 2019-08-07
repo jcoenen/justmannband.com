@@ -49,6 +49,10 @@ September 6th, Friday 5:30-8:30
 20 different beers, numerous wines, ethnic foods, great music! A family event.   
 Waupaca, WI   
 
+## October 2019
+Oct. 26th, Saturday      
+50th Anniversary, private   
+
 ## November 2019
 Nov. 12th, Tuesday 6-8   
 **private party but all Veteran’s & family members welcome!**  
