@@ -10,8 +10,8 @@ February 14th, Friday 7-11
 PAR4 Waupaca, WI 
 
 ## April 2020
-April 26, Saturday 1-5    
-**Stetsonville Community Center Public Dance **  
+April 26, Saturday 1-5
+**Stetsonville Community Center Public Dance **
 Mayville, WI
 
 ## August 2020
