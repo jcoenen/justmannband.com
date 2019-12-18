@@ -4,56 +4,36 @@ title: Showtimes
 subtitle: 
 ---
 
-## February 2019
-February 8th, Friday 7-11  
-**PAR4 Waupaca (formerly Ale House)**  
-Waupaca, WI
+## February 2020
+February 14th, Friday 7-11  
+**Rotary's Casino Royale**  
+PAR4 Waupaca, WI 
 
-Oct 13th, Sunday 1-5   
-**Public Dance**    
-Stetsonville Community Center, Stetsonville, WI 
-
-## April 2019
-April 13th, Saturday 1-5  
-**Mayville Park Pavilion**  
+## April 2020
+April 26, Saturday 1-5  
+**Stetsonville Community Center Public Dance **
 Mayville, WI
 
-## May 2019
-May 19th, Sun 11-2:30   
-**King Veteran's Home Open House**     
-King, Wisconsin  
+## August 2020
+August 7th-8th
+**Rusk Co Fair**    
+LadySmith, WI  
 
-May 31st, Friday
-**private wedding**  
-Racine, WI  
+August 30th, Sunday 11-2:30
+**King Veteran's Home Open House**    
+King, WI
 
-## June 2019
-June 2nd, Sunday  
-**Private wedding anniversary**    
-
-June 22nd, Sat.  6-10  
-**Private wedding**    
-Portage County Fairgrounds, Wisconsin 
-
-June 29th, Sat.  
-**Private wedding**    
-
-## July 2019
-July 12th, Friday 10:00-2:00pm    
-**50th Anniversary party, open to the public**    
-Waupaca Senior Center, Waupaca, WI  
-
-## September 2019
-September 6th, Friday 5:30-8:30    
-**Rotary Oktoberfest**    
-20 different beers, numerous wines, ethnic foods, great music! A family event.   
+## September 2020
+Septh 11th, Friday 5:15-8:00
+**Waupaca Rotary Oktoberfest**    
 Waupaca, WI   
+ 
 
-## October 2019
-Oct. 26th, Saturday      
-50th Anniversary, private   
+## October 2020
+October 24th, Sat
+**Private Wedding**
 
-## November 2019
-Nov. 12th, Tuesday 6-8   
-**private party but all Veteran’s & family members welcome!**  
+
+## November 2020
+November 8th, Tuesday 6-8
 King Veteran’s Home
