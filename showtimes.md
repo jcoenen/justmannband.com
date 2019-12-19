@@ -19,7 +19,7 @@ August 7th-8th
 **Rusk Co Fair**      
 LadySmith, WI  
 
-August 30th, Sunday 11-2:30  
+August 29th, Saturday 11-2:30  
 **King Veteran's Home Open House**      
 King, WI  
 
@@ -35,5 +35,5 @@ October 24th, Sat
 
 
 ## November 2020  
-November 8th, Tuesday 6-8  
+November 10th, Tuesday 6-8  
 King Veteran’s Home  
