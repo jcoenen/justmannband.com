@@ -15,8 +15,8 @@ April 26, Saturday 1-5
 Mayville, WI  
 
 ## August 2020
-August 7th-8th  
-**Rusk Co Fair**      
+August 8th  
+**Rusk County Fair**      
 LadySmith, WI  
 
 August 29th, Saturday 11-2:30  
@@ -27,7 +27,10 @@ King, WI
 Septh 11th, Friday 5:15-8:00  
 **Waupaca Rotary Oktoberfest**    
 Waupaca, WI   
- 
+
+Septh 19th, Friday 7:30-11:00  
+**Chippewa Falls Oktoberfest**    
+Chippewa Falls, WI  (Fairgrounds on the hill behind the Leinenkugel Brewery)
 
 ## October 2020  
 October 24th, Sat  
