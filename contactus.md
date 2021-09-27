@@ -6,7 +6,7 @@ subtitle:
 
 The Justmann Band
 
-Email: [checkpointcharlies@outlook.com](mailto:checkpointcharlies@outlook.com)
+Email: [charliejustmann@gmail.com](mailto:charliejustmann@gmail.com)
 
 Mail  
 Charlie Justmann  
