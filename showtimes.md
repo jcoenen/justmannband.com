@@ -32,7 +32,7 @@ Something fun for the entire family. Food, rides, numerous beers and activities.
 Friday, September 23rd, 5-8
 
 
-## October 2021
+## October 2022
 
 **Stetsonville Community Center**  
 October 9thth, Sunday  1-4   
