@@ -6,12 +6,15 @@ subtitle:
 
 ## Feb 2022
 **Waupaca Rotary's Casina Royale**  
-Friday, February 11th, 7-11    
-Waupaca, WI   
-Free play craps, Poker, and Black Jack tables along with a pizza buffet with a dance and party in the ball room.
-Saturday, June 12th   
+"Moved to March 11th due to upsurge in Covid Omicron virus".      
 
 ## March 2022
+**Waupaca Rotary's Casina Royale - St Patrick's Edition**  
+Friday, February 11th, 7-10:30   
+Waupaca, WI   
+Free play casino gaming, pizza smorgasbord & great music(!) included in the ticket price. Call or email me for advance tickets. 
+
+
 **Stetsonville Centennial Hall**  
 Sunday, March 27th 1-4pm  
 Stetsonville, WI  
