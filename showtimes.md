@@ -32,8 +32,8 @@ Saturday, Sept. 17th
 Something fun for the entire family. Food, rides, numerous beers and activities. Goes on Friday, Sept. 16th through Sat., Sept. 17th.  Normally 20,000-30,000 in attendance!
 
 **Waupaca Rotary Oktoberfest**   
-Friday, September 23rd, 5-8
-
+Friday, September 23rd, 5-8  
+With plenty of food, games, various beers to sample and two great bands to entertain. 
 
 ## October 2022
 
