@@ -10,7 +10,7 @@ subtitle:
 
 ## March 2022
 **Waupaca Rotary's Casina Royale - St Patrick's Edition**  
-Friday, February 11th, 7-10:30   
+Friday, March 11th, 7-10:30   
 Waupaca, WI   
 Free play casino gaming, pizza smorgasbord & great music(!) included in the ticket price. Call or email me for advance tickets. 
 
@@ -31,7 +31,7 @@ Saturday, August 13th
 Saturday, Sept. 17th   
 Something fun for the entire family. Food, rides, numerous beers and activities. Goes on Friday, Sept. 16th through Sat., Sept. 17th.  Normally 20,000-30,000 in attendance!
 
-**Waupaca County Oktoberfest**   
+**Waupaca Rotary Oktoberfest**   
 Friday, September 23rd, 5-8
 
 
