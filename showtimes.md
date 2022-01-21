@@ -5,8 +5,10 @@ subtitle:
 ---
 
 ## Feb 2022
-**Waupaca Rotary's Casina Royale**  
-"Moved to March 11th due to upsurge in Covid Omicron virus".      
+**"A Night of Music & Trivia" at PAR4 Waupaca**  
+Feb. 12th, Saturday 7:00-10:30   
+Waupaca, WI   
+Trivia gaming contests with prizes along with great music and dance. Valentine's Dinner Specials in the restaurant. Singles and/or couples are welcome. Call Charlie for tickets or at the door, $15ea.   
 
 ## March 2022
 **Waupaca Rotary's Casina Royale - St Patrick's Edition**  
