@@ -30,7 +30,7 @@ Saturday, August 13th
 ## September 2022
 
 **Chippewa Falls Oktoberfest**     
-Saturday, Sept. 17th   
+Saturday, Sept. 16th   
 Something fun for the entire family. Food, rides, numerous beers and activities. Goes on Friday, Sept. 16th through Sat., Sept. 17th.  Normally 20,000-30,000 in attendance!
 
 **Waupaca Rotary Oktoberfest**   
