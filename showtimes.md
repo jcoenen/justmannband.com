@@ -16,16 +16,18 @@ Friday, March 11th, 7-10:30
 Waupaca, WI   
 Free play casino gaming, pizza smorgasbord & great music(!) included in the ticket price. Call or email me for advance tickets. 
 
-
 **Stetsonville Centennial Hall**  
 Sunday, March 27th 1-4pm  
 Stetsonville, WI  
 Dance, party, bar is open!  
 
+## June 2022  
+**SHP Open House**    
+Saturday, June 11th 10:00a.m.-2:00 p.m   
+E4355 East Gate Dr., Waupaca - across from the Waupaca Airport   
+
 ## August 2022
-**Rusk County Fair**   
-Friday, August 12th  
-Saturday, August 13th 
+**CANCELLED - Rusk County Fair**    
 
 ## September 2022
 
