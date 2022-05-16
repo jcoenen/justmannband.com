@@ -4,7 +4,7 @@ title: Contact Us
 subtitle: 
 ---
 
-CJB Rock & Variety *(formerly known as the Justmann Band)
+CJB Rock & Variety *(formerly known as the Justmann Band)*
 
 Email: [charliejustmann@gmail.com](mailto:charliejustmann@gmail.com)
 
