@@ -4,7 +4,7 @@ title: Contact Us
 subtitle: 
 ---
 
-The Justmann Band
+CJB Rock & Variety *(formerly known as the Justmann Band)
 
 Email: [charliejustmann@gmail.com](mailto:charliejustmann@gmail.com)
 
@@ -14,8 +14,7 @@ E1288 Frontage Rd
 Waupaca, WI 54981  
 
 Phone  
-715.258.4867  
-715.258.3205  
+715-630-4867
+715-281-4198
 
-Fax  
-715.258.6945
+
