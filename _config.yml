@@ -14,7 +14,7 @@
 # Of course don't forget to change the username and projectname to YOUR username and project
 
 # Name of website
-title: CJB Rock & Variety
+title: CJB Rock & Variety Band
 
 # Short description of your site
 description: 
@@ -41,7 +41,7 @@ navbar-links:
 # Change all these values or delete the ones you don't want.
 # Important: you must keep the "name" parameter, everything else you can remove
 author:
-  name: The Justmann Band
+  name: CJB Rock & Variety Band
   email: "charliejustmann@gmail.com"
   facebook: "https://www.facebook.com/The-Justmann-Band-118035628304619/"  # eg. daattali
  # github: yourname    # eg. daattali
