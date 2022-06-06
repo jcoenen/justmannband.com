@@ -29,6 +29,9 @@ E4355 East Gate Dr., Waupaca - across from the Waupaca Airport
 ## August 2022
 **CANCELLED - Rusk County Fair**    
 
+**King Veterans Home**  
+August 21st, Sunday 1:30-3:30  
+
 ## September 2022
 
 **Chippewa Falls Oktoberfest**     
