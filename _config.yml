@@ -25,10 +25,7 @@ description:
 navbar-links:
   Home: "http://justmannband.com"
   ShowTimes: "showtimes"
-  Sound Samples: "samples"
-  Albums: "albums"
   About The Band: 
-    - Members: "members"
     - History: "history"
     - Contact Us: "contactus"
 
