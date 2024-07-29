@@ -10,7 +10,7 @@ Email: [charliejustmann@gmail.com](mailto:charliejustmann@gmail.com)
 
 Mail  
 Charlie Justmann  
-E1288 Frontage Rd  
+N2777 County Hwy. QQ
 Waupaca, WI 54981  
 
 Phone  
