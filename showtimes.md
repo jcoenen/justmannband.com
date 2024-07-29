@@ -4,52 +4,31 @@ title: Showtimes
 subtitle: 
 ---
 
-## Feb 2022
-**"A Night of Music & Trivia" at PAR4 Waupaca**  
-Feb. 12th, Saturday 7:00-10:30   
-Waupaca, WI   
-Trivia gaming contests with prizes along with great music and dance. Valentine's Dinner Specials in the restaurant. Singles and/or couples are welcome. Call Charlie for tickets or at the door, $15ea.   
+## September 2024
 
-## March 2022
-**Waupaca Rotary's Casina Royale - St Patrick's Edition**  
-Friday, March 11th, 7-10:30   
-Waupaca, WI   
-Free play casino gaming, pizza smorgasbord & great music(!) included in the ticket price. Call or email me for advance tickets. 
+**Waupaca Rotary's "Rocktoberfest" #1 Fundraiser**  
+September 13th, Friday 6:00-10:30   
+Numerous Craft Beers and Wines to sample, Plenty of food. Games for kids and adults. Family friendly! 700-800 normally in attendance. Corner of Main St. & Fulton St., Waupaca
 
-**Stetsonville Centennial Hall**  
-Sunday, March 27th 1-4pm  
-Stetsonville, WI  
-Dance, party, bar is open!  
+**Chippewa Falls Oktoberfest Opening Night**  
+September 20th, Friday 7:00-11:00   
+Lots of food and beer vendors. Games. Family friendly. Northern WI State Fairgrounds on the hill behind the Leinenkugel Brewery. Thousands of attendees attend each year. One of the best! 
 
-## June 2022  
-**SHP Open House**    
-Saturday, June 11th 10:00a.m.-2:00 p.m   
-E4355 East Gate Dr., Waupaca - across from the Waupaca Airport   
+**Whiting Dance Club dance**  
+September 21st, Saturday 8:00-11:30    
+Ballroom Dance and Variety night. Stevens Point UW Center  
 
-## August 2022
-**CANCELLED - Rusk County Fair**    
+## October 2024
 
-**King Veterans Home**  
-August 21st, Sunday 1:30-3:30  
+**WI State Town Association Annual Convention**  
+October 7th, Monday 8:00-10:00 
 
-## September 2022
 
-**Chippewa Falls Oktoberfest**     
-Saturday, Sept. 16th   
-Something fun for the entire family. Food, rides, numerous beers and activities. Goes on Friday, Sept. 16th through Sat., Sept. 17th.  Normally 20,000-30,000 in attendance!
+## June 2025  
 
-**Waupaca Rotary Oktoberfest**   
-Friday, September 23rd, 5-8  
-With plenty of food, games, various beers to sample and two great bands to entertain. 
-
-## October 2022
-
-**Stetsonville Community Center**  
-October 9thth, Sunday  1-4   
-Stetsonville Community Center     
-Stetsonville, WI  
-Dance, party, bar is open!  
-
+**Wild Rose Old Fashioned Fest**  
+June 7th, Saturday 3-7  
+2nd annual, lots of vendors. Food, beer, and Old-Fashions! circa 4000 people attended this year.  
 
 
 
