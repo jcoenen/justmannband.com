@@ -23,6 +23,10 @@ Ballroom Dance and Variety night. Stevens Point UW Center
 **WI State Town Association Annual Convention**  
 October 7th, Monday 8:00-10:00 
 
+## November 2024  
+
+**King Veterans Home Veterans Day Celebration**  
+Nov. 11th, Monday 1:30-3:00 King Veterans Home  
 
 ## June 2025  
 
