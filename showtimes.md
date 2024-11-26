@@ -2,6 +2,7 @@
 layout: page
 title: Showtimes
 subtitle: 
+header-img: "/img/cjb_header.jpeg"
 ---
 
 ## September 2024
