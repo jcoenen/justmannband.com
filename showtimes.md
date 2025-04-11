@@ -5,35 +5,48 @@ subtitle:
 header-img: "/img/cjb_header.jpeg"
 ---
 
-## September 2024
-
-**Waupaca Rotary's "Rocktoberfest" #1 Fundraiser**  
-September 13th, Friday 6:00-10:30   
-Numerous Craft Beers and Wines to sample, Plenty of food. Games for kids and adults. Family friendly! 700-800 normally in attendance. Corner of Main St. & Fulton St., Waupaca
-
-**Chippewa Falls Oktoberfest Opening Night**  
-September 20th, Friday 7:00-11:00   
-Lots of food and beer vendors. Games. Family friendly. Northern WI State Fairgrounds on the hill behind the Leinenkugel Brewery. Thousands of attendees attend each year. One of the best! 
-
-**Whiting Dance Club dance**  
-September 21st, Saturday 8:00-11:30    
-Ballroom Dance and Variety night. Stevens Point UW Center  
-
-## October 2024
-
-**WI State Town Association Annual Convention**  
-October 7th, Monday 8:00-10:00 
-
-## November 2024  
-
-**King Veterans Home Veterans Day Celebration**  
-Nov. 11th, Monday 1:30-3:00 King Veterans Home  
-
 ## June 2025  
 
 **Wild Rose Old Fashioned Fest**  
-June 7th, Saturday 3-7  
-2nd annual, lots of vendors. Food, beer, and Old-Fashions! circa 4000 people attended this year.  
+June 7th, Saturday 11:00-3:00  
+2nd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4000 people attended this year. Wild Rose, WI
 
+## September 2025
 
+**Waupaca Rotary Rocktoberfest**  
+September 7th, Friday 5:30-9:30  
+A true family event with crafts and games for the kids, plenty of ethnic food, wine tasting and 16 beers to sample and drink. Not to mention Great Music! Waupaca, WI
 
+**Oshkosh Oktoberfest**  
+September 19th, Friday 7:00-11:00  
+First ever. More information to come. This is going to be great! Oshkosh, WI
+
+**Chippewa Falls Oktoberfest**  
+September 20th, Saturday 7:00-10:30  
+Closing night. Always a big party. Various beers, ethnic food and games. A fun time for the whole family! Chippewa Falls, WI
+
+## October 2025
+
+**Private Wedding**  
+October 10th, Friday  
+Green Bay, WI
+
+## November 2025
+
+**Whiting Dance Club private party**  
+November 8th, Saturday  
+Stevens Point, WI
+
+**Moses Hall Veterans Day private party**  
+November 11th, Tuesday Morning  
+King, WI
+
+**Ainsworth Hall Veterans Day private party**  
+November 11th, Tuesday Afternoon  
+King, WI
+
+## May 2026
+
+**Whiting Dance Club private party**  
+May 9th, Saturday  
+Stevens Point, WI
