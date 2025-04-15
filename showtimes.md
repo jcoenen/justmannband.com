@@ -9,7 +9,7 @@ header-img: "/img/cjb_header.jpeg"
 
 **Wild Rose Old Fashioned Fest**  
 June 7th, Saturday 11:00-3:00  
-2nd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4000 people attended this year. Wild Rose, WI
+2nd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4000 people attended last year. Wild Rose, WI
 
 ## September 2025
 
