@@ -38,6 +38,7 @@ November 8th, Saturday
 Stevens Point, WI
 
 **Moses Hall Veterans Day private party**  
+Veterans and their families are invited. (Otherwise it is private)  
 November 11th, Tuesday Morning  
 King, WI
 
