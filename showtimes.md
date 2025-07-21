@@ -51,3 +51,9 @@ King, WI
 **Whiting Dance Club private party**  
 May 9th, Saturday  
 Stevens Point, WI
+
+## June 2026
+
+**Wild Rose Old Fashioned Fest**  
+June 6th, Saturday 11:00-3:00  
+3rd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4500 people attended last year. Wild Rose, WI
