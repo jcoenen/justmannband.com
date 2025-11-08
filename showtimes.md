@@ -9,11 +9,6 @@ header-img: "/img/cjb_header.jpeg"
 June 7th, Saturday 11:00-3:00  
 2nd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4000 people attended last year. Wild Rose, WI  
 
-## July 2025
-**Wedding Anniversary Party**  
-July 18th, Friday  
-Wautoma, WI  
-
 ## September 2025
 **Waupaca Rotary Rocktoberfest**  
 September 7th, Friday 5:30-9:30  
@@ -33,11 +28,6 @@ October 10th, Friday
 Green Bay, WI  
 
 ## November 2025
-**Private Party**  
-November 7th, Friday  
-Stevens Point, WI  
-Contact me for invitation and tickets.  
-
 **Whiting Dance Club private party**  
 November 8th, Saturday  
 Stevens Point, WI  
@@ -51,12 +41,6 @@ King, WI
 November 11th, Tuesday Afternoon  
 King, WI  
 
-## March 2026
-**Private Party**  
-March 6th, Friday  
-Stevens Point, WI  
-Contact me for invitation and tickets.  
-
 ## May 2026
 **Whiting Dance Club private party**  
 May 9th, Saturday  
@@ -66,3 +50,20 @@ Stevens Point, WI
 **Wild Rose Old Fashioned Fest**  
 June 6th, Saturday 11:00-3:00  
 3rd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4500 people attended last year. Wild Rose, WI  
+
+## July 2026
+**Wedding Anniversary Party**  
+July 18th, Saturday  
+Wautoma, WI  
+
+## November 2026
+**Private Party**  
+November 7th, Saturday  
+Stevens Point, WI  
+Contact me for invitation and tickets.  
+
+## March 2027
+**Private Party**  
+March 6th, Saturday  
+Stevens Point, WI  
+Contact me for invitation and tickets.  
