@@ -53,9 +53,20 @@ June 6th, Saturday 11:00-3:00
 3rd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4500 people attended last year. Wild Rose, WI
 
 ## July 2026
+**Northern Wisconsin State Fair**  
+July 11th, Saturday 9:30-Midnight  
+Leinie Lodge stage.........this is big!  
+Chippewa Falls, WI
+
 **Wedding Anniversary Party**  
 July 18th, Saturday  
 Wautoma, WI
+
+## September 2026
+**Chippewa Falls Oktoberfest**  
+Sept. 19th, Saturday 7:00-10:30  
+A fabulous family event and normally a packed house!  
+Chippewa Falls, WI
 
 ## November 2026
 **Private Party**  
