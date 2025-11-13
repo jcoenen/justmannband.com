@@ -36,16 +36,6 @@ Green Bay, WI
 November 8th, Saturday  
 Stevens Point, WI
 
-**Moses Hall Veterans Day private party**  
-Nov. 11th 9:30-11:00 Moses Hall, King Veterans Home  
-Veterans and their families only are invited, otherwise private.  
-King, WI
-
-**Ainsworth Hall Veterans Day private party**  
-Nov. 11th 1:30-3:00 Ainsworth Hall, King Veterans Home  
-Veterans and their families only are invited, otherwise private.  
-King, WI
-
 ## May 2026
 **Whiting Dance Club private party**  
 May 9th, Saturday  
@@ -78,6 +68,16 @@ Chippewa Falls, WI
 November 7th, Saturday  
 Stevens Point, WI  
 Contact me for invitation and tickets.
+
+**Moses Hall Veterans Day private party**  
+Nov. 11th 9:30-11:00 Moses Hall, King Veterans Home  
+Veterans and their families only are invited, otherwise private.  
+King, WI
+
+**Ainsworth Hall Veterans Day private party**  
+Nov. 11th 1:30-3:00 Ainsworth Hall, King Veterans Home  
+Veterans and their families only are invited, otherwise private.  
+King, WI
 
 ## March 2027
 **Private Party**  
