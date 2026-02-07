@@ -4,83 +4,61 @@ title: Showtimes
 subtitle:
 header-img: "/img/cjb_header.jpeg"
 ---
-## June 2025
-**Wild Rose Old Fashioned Fest**  
-June 7th, Saturday 11:00-3:00  
-2nd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4000 people attended last year.  
-Wild Rose, WI
-
-## September 2025
-**Waupaca Rotary Rocktoberfest**  
-September 7th, Friday 5:30-9:30  
-A true family event with crafts and games for the kids, plenty of ethnic food, wine tasting and 16 beers to sample and drink. Not to mention Great Music!  
-Waupaca, WI
-
-**Oshkosh Oktoberfest**  
-September 19th, Friday 7:00-11:00  
-First ever. More information to come. This is going to be great!  
-Oshkosh, WI
-
-**Chippewa Falls Oktoberfest**  
-September 20th, Saturday 7:00-10:30  
-Closing night. Always a big party. Various beers, ethnic food and games. A fun time for the whole family!  
-Chippewa Falls, WI
-
-## October 2025
-**Private Wedding**  
-October 10th, Friday  
-Green Bay, WI
-
-## November 2025
-**Whiting Dance Club private party**  
-November 8th, Saturday  
-Stevens Point, WI
-
 ## May 2026
-**Whiting Dance Club private party**  
-May 9th, Saturday  
+**Whiting Dance Club private party**<br>
+May 9th, Saturday<br>
 Stevens Point, WI
 
 ## June 2026
-**Wild Rose Old Fashioned Fest**  
-June 6th, Saturday 11:00-3:00  
-3rd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4500 people attended last year.  
+**Wild Rose Old Fashioned Fest**<br>
+June 6th, Saturday 11:00-3:00<br>
+3rd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4500 people attended last year.<br>
 Wild Rose, WI
 
 ## July 2026
-**Northern Wisconsin State Fair**  
-July 11th, Saturday 9:30-Midnight  
-Leinie Lodge stage.........this is big!  
+**Northern Wisconsin State Fair**<br>
+July 11th, Saturday 9:30-Midnight<br>
+Leinie Lodge stage.........this is big!<br>
 Chippewa Falls, WI
 
-**Wedding Anniversary Party**  
-July 18th, Saturday  
+**Wedding Anniversary Party**<br>
+July 18th, Saturday<br>
 Wautoma, WI
 
 ## September 2026
-**Chippewa Falls Oktoberfest**  
-Sept. 19th, Saturday 7:00-10:30  
-A fabulous family event and normally a packed house!  
+**Waupaca Rotary's "Rocktoberfest"**<br>
+Sept. 4th, Friday 5:30-9:30<br>
+Fun, food and games for the entire family. Numerous different beers and wines to sample. Ethnic foods. "Kinder Schloss" crafts and games for the kids. A true family event.<br>
+Waupaca, WI
+
+**Oshkosh Pioneer Inn, "Oshtoberfest"**<br>
+Sept. 18th, Friday 6:00-9:30<br>
+Various beers, ethnic foods, and something for the entire family.<br>
+Oshkosh, WI
+
+**Chippewa Falls Oktoberfest**<br>
+Sept. 19th, Saturday 7:00-10:30<br>
+A fabulous family event and normally a packed house!<br>
 Chippewa Falls, WI
 
 ## November 2026
-**Private Party**  
-November 7th, Saturday  
-Stevens Point, WI  
+**Private Party**<br>
+November 7th, Saturday<br>
+Stevens Point, WI<br>
 Contact me for invitation and tickets.
 
-**Moses Hall Veterans Day private party**  
-Nov. 11th 9:30-11:00 Moses Hall, King Veterans Home  
-Veterans and their families only are invited, otherwise private.  
+**Moses Hall Veterans Day private party**<br>
+Nov. 11th 9:30-11:00 Moses Hall, King Veterans Home<br>
+Veterans and their families only are invited, otherwise private.<br>
 King, WI
 
-**Ainsworth Hall Veterans Day private party**  
-Nov. 11th 1:30-3:00 Ainsworth Hall, King Veterans Home  
-Veterans and their families only are invited, otherwise private.  
+**Ainsworth Hall Veterans Day private party**<br>
+Nov. 11th 1:30-3:00 Ainsworth Hall, King Veterans Home<br>
+Veterans and their families only are invited, otherwise private.<br>
 King, WI
 
 ## March 2027
-**Private Party**  
-March 6th, Saturday  
-Stevens Point, WI  
+**Private Party**<br>
+March 6th, Saturday<br>
+Stevens Point, WI<br>
 Contact me for invitation and tickets.

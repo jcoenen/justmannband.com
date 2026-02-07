@@ -23,7 +23,7 @@ description:
 
 # List of links in the navigation bar
 navbar-links:
-  Home: "http://justmannband.com"
+  Home: "https://justmannband.com"
   ShowTimes: "showtimes"
   About The Band: 
     - History: "history"
@@ -174,7 +174,7 @@ prose:
           label: "Publish"
           help: "Check to publish post, uncheck to hide."
 
-gems:
+plugins:
   - jekyll-paginate
 
 # Beautiful Jekyll / Dean Attali

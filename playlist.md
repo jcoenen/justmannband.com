@@ -1,3 +1,9 @@
+---
+layout: page
+title: Play List
+subtitle:
+header-img: "/img/cjb_header.jpeg"
+---
 # Charlie Justmann Band/CJB Classics
 
 ## Songs Playlist

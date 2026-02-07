@@ -1,6 +1,6 @@
 source 'https://rubygems.org'
 
-gem 'execjs'
-gem 'therubyracer'
-gem 'github-pages'
+gem 'jekyll', '~> 4.3'
 gem 'jekyll-paginate'
+gem 'webrick'
+gem 'kramdown-parser-gfm'
