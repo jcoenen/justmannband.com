@@ -114,7 +114,7 @@ subtitle:
 </div>
 
 ## Uping the Ante' – 1998
- [![](http://i2.wp.com/www.justmannband.com/images/detail/ante_cover.jpg)](http://www.checkpointcharlies.com/ecommerce/the-justmann-band-cds.html)
+ [![](/img/ante_cover.jpg)](http://www.checkpointcharlies.com/ecommerce/the-justmann-band-cds.html)
 [Order CD or Cassette](http://www.checkpointcharlies.com/ecommerce/the-justmann-band-cds.html)
 
 **Sound Clips**
