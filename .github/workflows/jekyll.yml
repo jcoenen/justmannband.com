@@ -2,7 +2,7 @@ name: Build and Deploy Jekyll Site
 
 on:
   push:
-    branches: ["gh-pages"]
+    branches: ["master"]
 
 permissions:
   contents: read
