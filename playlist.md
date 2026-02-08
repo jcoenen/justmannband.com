@@ -2,7 +2,7 @@
 layout: page
 title: Play List
 subtitle:
-header-img: "/img/cjb_header.jpeg"
+bigimg: "/img/justmannband-header.jpg"
 ---
 # Charlie Justmann Band/CJB Classics
 

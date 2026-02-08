@@ -2,7 +2,7 @@
 layout: page
 title: Showtimes
 subtitle:
-header-img: "/img/cjb_header.jpeg"
+bigimg: "/img/justmannband-header.jpg"
 ---
 ## May 2026
 **Whiting Dance Club private party**<br>
