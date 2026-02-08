@@ -1,7 +1,8 @@
 ---
 layout: page
 title: The History
-subtitle: 
+subtitle:
+bigimg: "/img/justmannband-header.jpg"
 ---
 
 The Charlie Justmann Band/CJB Rock & Variety came into existence in 1947 when Charlie's Dad, Andy, played his first gig at the tender age of 16. Andy 'drafted' Charlie into his band at the age of 15. At that time the band was known as The Andy Justmann Orchestra and played Polkas, Big Band, Classic Rock and more. Andy retired from the band around 2010. Charlie had taken the band in a different direction starting around 2000.   

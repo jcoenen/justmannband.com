@@ -1,7 +1,8 @@
 ---
 layout: page
 title: The Members
-subtitle: 
+subtitle:
+bigimg: "/img/justmannband-header.jpg"
 ---
 
 ## The Members

@@ -1,7 +1,8 @@
 ---
 layout: page
 title: Contact Us
-subtitle: 
+subtitle:
+bigimg: "/img/justmannband-header.jpg"
 ---
 
 CJB Rock & Variety Band *(formerly known as the Justmann Band)*

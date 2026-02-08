@@ -293,6 +293,35 @@ img {
   font-weight: 600;
 }
 
+/* --- About Page Action Buttons --- */
+
+.btn-about-action {
+  display: inline-block;
+  background-color: #0085a1;
+  color: #fff;
+  font-family: 'Open Sans', 'Helvetica Neue', Helvetica, Arial, sans-serif;
+  font-weight: 800;
+  font-size: 14px;
+  text-transform: uppercase;
+  letter-spacing: 1px;
+  padding: 12px 30px;
+  border-radius: 4px;
+  transition: background-color 0.3s;
+  width: 100%;
+  max-width: 220px;
+}
+.btn-about-action:hover,
+.btn-about-action:focus {
+  background-color: #006b82;
+  color: #fff;
+  text-decoration: none;
+}
+.about-action-desc {
+  margin-top: 12px;
+  font-size: 15px;
+  color: #808080;
+}
+
 /* --- Footer --- */
 
 footer {

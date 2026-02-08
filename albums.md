@@ -1,7 +1,8 @@
 ---
 layout: page
 title: Albums
-subtitle: 
+subtitle:
+bigimg: "/img/justmannband-header.jpg"
 ---
 
 ## MY WAY OR THE HIGHWAY

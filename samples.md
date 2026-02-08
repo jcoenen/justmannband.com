@@ -2,6 +2,7 @@
 layout: page
 title: Sound Samples
 subtitle:
+bigimg: "/img/justmannband-header.jpg"
 ---
 
 ## Number 4 – 2005
