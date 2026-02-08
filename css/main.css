@@ -532,6 +532,22 @@ footer .theme-by {
   padding: 20px 0;
   box-shadow: 0 0 5px #AAA;
 }
+/* On mobile, show full image width so no band members get cropped */
+@media only screen and (max-width: 767px) {
+  .intro-header.big-img {
+    background-size: contain;
+    background-position: center top;
+    background-color: #1a1a1a;
+    height: auto;
+    min-height: 200px;
+    aspect-ratio: 16 / 9;
+  }
+  .intro-header.big-img .page-heading,
+  .intro-header.big-img .post-heading {
+    padding: 60px 0;
+  }
+}
+
 /* Many phones are 320 or 360px, so make sure images are a proper aspect ratio in those cases */
 .header-section.has-img .intro-header.no-img {
   display: none;
@@ -540,21 +556,8 @@ footer .theme-by {
   .header-section.has-img .intro-header.no-img {
     display: block;
   }
-  .intro-header.big-img {
-    width: 100%;
-    height: 220px;
-  }
-  .intro-header.big-img .page-heading,
-  .intro-header.big-img .post-heading {
-    display: none;
-  }
   .header-section.has-img .big-img {
     margin-bottom: 0;
-  }  
-} 
-@media only screen and (max-width: 325px) { 
-  .intro-header.big-img {
-    height: 200px;
   }
 }
 
