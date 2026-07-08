@@ -4,17 +4,6 @@ title: Showtimes
 subtitle:
 bigimg: "/img/justmannband-header.jpg"
 ---
-## May 2026
-**Whiting Dance Club private party**<br>
-May 9th, Saturday<br>
-Stevens Point, WI
-
-## June 2026
-**Wild Rose Old Fashioned Fest**<br>
-June 6th, Saturday 11:00-3:00<br>
-3rd annual, lots of vendors. Food, beer, and Old-Fashions! Our band opens the fest! Circa 4500 people attended last year.<br>
-Wild Rose, WI
-
 ## July 2026
 **Northern Wisconsin State Fair**<br>
 July 11th, Saturday 9:30-Midnight<br>
@@ -24,6 +13,10 @@ Chippewa Falls, WI
 **Wedding Anniversary Party**<br>
 July 18th, Saturday<br>
 Wautoma, WI
+
+**Private Party**<br>
+July 25th, Saturday<br>
+By invitation only.
 
 ## September 2026
 **Waupaca Rotary's "Rocktoberfest"**<br>
@@ -40,6 +33,11 @@ Oshkosh, WI
 Sept. 19th, Saturday 7:00-10:30<br>
 A fabulous family event and normally a packed house!<br>
 Chippewa Falls, WI
+
+## October 2026
+**WI State Towns Assoc. Convention**<br>
+Oct. 5th, Monday<br>
+By invitation only.
 
 ## November 2026
 **Private Party**<br>
@@ -62,3 +60,9 @@ King, WI
 March 6th, Saturday<br>
 Stevens Point, WI<br>
 Contact me for invitation and tickets.
+
+## June 2027
+**Wild Rose Old Fashioned Fest**<br>
+June 5th, Saturday 11:00-3:00<br>
+A fabulous party and a great family event! Plenty of food and beverages, bring the kids! This will be their fourth season.<br>
+Wild Rose, WI
